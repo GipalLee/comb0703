@@ -1,5 +1,5 @@
 
-I’m interested in Computer Vision, AI/ML and Anomaly detection, Business model, Efficiency, Platform, Finance
+I’m interested in Computer Vision, AI/ML and Anomaly detection, Business model, Efficiency, Platform and Finance
 
 Email : comb0703@naver.com
 
